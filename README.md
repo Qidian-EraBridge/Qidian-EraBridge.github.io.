@@ -1,1 +1,1 @@
-# https-Qidian-EraBridge.github.io.
+# Qidian-EraBridge
